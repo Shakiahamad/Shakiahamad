@@ -2,7 +2,7 @@
 - 👀 I’m interested in Latest Technology updates
 - 🌱 I’m currently learning New updates
 - 💞️ I’m looking to collaborate on .....
-- 📫 How to reach me on insta @ Oiii_cool_rider_7
+- 📫 How to reach me on insta @shaa_riz_118
 
 <!---
 Shakiahamad/Shakiahamad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
